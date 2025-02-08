@@ -51,7 +51,7 @@ Scam Links / Hacking Attempts හෝ කුමන Link එකක් වුවද
 
 🚀 ඔබේ අනිත් යාළුවන්ටත් Invite කරන්න.! 🎉
 
-📢 අප හා එකතු වීමට: 👉 Join Group Now
+📢 අප හා එකතු වීමට: 👉 [Join Group Now](http://t.me/COOLBOOY550)
 
 🌹👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫👫🌹
 # GROUP-RULES
